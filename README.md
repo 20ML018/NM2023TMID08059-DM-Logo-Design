@@ -1,1 +1,0 @@
-# NM2023TMID08059-DM-Logo-Design
